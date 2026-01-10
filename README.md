@@ -1,3 +1,8 @@
+<p align="left">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31jvuht46d2f6ysn65ib3kujycdu&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=c472a7&bar_color_cover=false">
+  </a>
+</p>
 <p align="right"> <img width="200" height="400" alt="image" src="https://github.com/user-attachments/assets/67777feb-3d8e-4302-b293-8b90e519c74a" />
 </p>
 <p align="center">
@@ -19,5 +24,3 @@
  ୭  ˖  𓌔  pjsk, lads, hsr, alnst, forsaken, dod, sewh, etc ! ♡  𓏻 ✦ <img width= "20" height= "20' alt="thing" src="https://file.garden/Zl2CmebwmXKvGhRN/candyshoppe%20rentry/pixels/purple/95" <ins>
  </p>
 <img width="2048" height="345" alt="image" src="https://github.com/user-attachments/assets/56e66a53-f875-4491-8574-c0cf3fd5b8f1" />
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31jvuht46d2f6ysn65ib3kujycdu&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=999999&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
