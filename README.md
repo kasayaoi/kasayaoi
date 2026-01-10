@@ -3,7 +3,7 @@
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=emuinsanity&color=C472A7&label=ibannies+!+♡+.&base=423"/>
     </p>
-<p align="left">
+<p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31jvuht46d2f6ysn65ib3kujycdu&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=c472a7&bar_color_cover=false">
   </a>
