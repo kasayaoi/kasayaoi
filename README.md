@@ -22,7 +22,7 @@
    &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
    <a href="https://pronouns.cc/@alienowned">prns.cc</a>
       &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
-   <a href="https://guns.lol/alienowned">guns.lol</a>
+   <a href="https://guns.lol/takeyourdosage">guns.lol</a>
    <img width= "20" height= "20' alt="thing" src="https://64.media.tumblr.com/523f3b0e58971c2672ed19bd4ea752ba/a76048123e6655a6-c6/s75x75_c1/be61995d5fe87cb9264badf036ee913115f65ec8.gifv" <ins>
  </p>
 <p align="right"> <img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/f6ecb69a-a398-475b-97ac-d9e02788f07c" />
