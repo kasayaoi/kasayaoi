@@ -18,7 +18,7 @@
  $\color{#8A79C9}{\textsf{୭  ˖  𓌔  pjsk, alnst, forsaken, hetalia, sewh, danganronpa, etc ! ♡  𓏻 ✦}}$ <img width= "20" height= "20' alt="thing" src="http://th134.photobucket.com/albums/q117/rml1995/th_pixel.gif" <ins>
  </p>
  <p align="middle">
- <img width= "20" height= "20' alt="thing" src="https://64.media.tumblr.com/523f3b0e58971c2672ed19bd4ea752ba/a76048123e6655a6-c6/s75x75_c1/be61995d5fe87cb9264badf036ee913115f65ec8.gifv" <ins>  <a href="https://alienowned.atabook.org/">ata</a>
+ <img width= "20" height= "20' alt="thing" src="https://64.media.tumblr.com/523f3b0e58971c2672ed19bd4ea752ba/a76048123e6655a6-c6/s75x75_c1/be61995d5fe87cb9264badf036ee913115f65ec8.gifv" <ins>  <a href="https://nurse-england.atabook.org/">ata</a>
    &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
    <a href="https://pronouns.cc/@alienowned">prns.cc</a>
       &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
