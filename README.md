@@ -5,7 +5,7 @@
 </p>
 <p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Covered+By+Your+Grace&duration=3000&pause=1000&color=E393B5&center=true&width=435&lines=i+want+things+to+be+beautiful+.+.+.;i+forgot+things+could+be+beautiful+.+.+.;i+forgot+it+was+an+option+.+.+.;i+had+given+up+hope+." alt="Typing SVG" /></a>
 </p>
-<p align="center"> <img width="700" height="900" alt="image" src="https://github.com/user-attachments/assets/44e67930-d303-4a3d-99e8-03892577ef18" />
+<p align="center"> <img width="600" height="800" alt="image" src="https://github.com/user-attachments/assets/44e67930-d303-4a3d-99e8-03892577ef18" />
 </p>
 <p align = middle> <img width= "20" height= "20' alt="bear" src="https://64.media.tumblr.com/4d6ea849f85e7835d253e7fbf34b3706/7593d826f95a1181-08/s75x75_c1/cf62cbbe17deb3fb0cded9f465ff2027827f72e3.jpg" <ins>
   $\color{#9BE3B1}{\textsf{. . ۶ৎ  minji ! ೀ}}$ </p>
